@@ -1,18 +1,18 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤhaii !!
+haii !!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
+ㅤㅤㅤㅤㅤ+ ° .  ๑・° ⊹ . + ° .  ๑ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ──˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ── + ° .  ๑・° ⊹ . + ° .  ๑
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤISTP 9w1 introvert
+ISTP 9w1 introvert
 
-ㅤㅤㅤㅤㅤㅤㅤmy replies may seem cold and dry(sometims..), but im rlly sweet to talk
+my replies may seem cold and dry(sometims..), but im rlly sweet to talk
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤidc abt pronouns, but i prefer she/her
+idc abt pronouns, but i prefer she/her
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmostly afk... c+h always allowed i dont bite.
+mostly afk... c+h always allowed i dont bite.
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊
+ㅤㅤㅤㅤㅤ+ ° .  ๑・° ⊹ . + ° .  ๑ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ──˚₊⋅─── /ᐠ - ˕ -マ ───⋅ ˚₊ ── ࣪˖  ࣪ ⊹ ࣪ ˖ ── + ° .  ๑・° ⊹ . + ° .  ๑
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi rlly luv matching cosplayss n cuddling with em!!!
+i rlly luv matching cosplayss n cuddling with em!!!
 
 ![photo_2025-12-10_00-48-05](https://github.com/user-attachments/assets/277a9ac6-20ee-4cdc-bf3e-73bb456f9119)
 
